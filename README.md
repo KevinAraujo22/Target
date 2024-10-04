@@ -1,0 +1,1 @@
+Seguem alguns exercícios que fiz no processo seletivo de uma empresa.
